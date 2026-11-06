@@ -1,0 +1,1 @@
+jakis tam task z porpawka zadania od ai w cpp to nie ma tu nic xd
